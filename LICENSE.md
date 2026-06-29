@@ -1,4 +1,4 @@
-# 
+# Último uniswap trading bot scripts for Mac OS | Élite uniswap trading bot scripts for PC Windows. Featuring API de intercambio centralizado and API de intercambio descentralizado — optimized for maximum performance.
 
 
 
